@@ -107,7 +107,7 @@ I only create knowledge-packed content so that you get to learn about the follow
 Thanks
 
 **Amit Shekhar**\
-Co-Founder @ [Outcome School](https://outcomeschool.com)
+Founder @ [Outcome School](https://outcomeschool.com)
 
 You can connect with me on:
 
